@@ -1,1 +1,1 @@
-# 传送门 [啦啦啦](/index.html)
+# *[传送门](/index.html)
